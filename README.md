@@ -5,7 +5,7 @@
 
 💞️ I’m looking to collaborate on open-source software projects and community gardening initiatives.
 
-📫 How to reach me: You can reach out to me via email at yourname@example.com or connect with me on LinkedIn at [your LinkedIn profile link].
+📫 How to reach me: You can reach out to me via email at vardhan114433@gmail.com or connect with me on LinkedIn at https://www.linkedin.com/in/gurram-sree-vardhan-reddy-1151a7298/.
 
 😄 Pronouns: He/Him.
 
