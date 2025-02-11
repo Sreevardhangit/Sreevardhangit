@@ -1,7 +1,7 @@
 👋 Hi, I’m @Sreevardhangit
  👀 I’m interested in exploring new technologies, sustainable living, and creative writing.
 
-🌱 I’m currently learning Python programming and improving my cooking skills.
+🌱 I’m currently learning Machine Learning and improving my Skills.
 
 💞️ I’m looking to collaborate on open-source software projects and community gardening initiatives.
 
